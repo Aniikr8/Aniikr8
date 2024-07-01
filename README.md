@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **kranirudh.404@gmail.com**
 
-- ⚡ Fun fact **'m surprisingly fearless when it comes to real bugs, but when they sneak into my code, it's a whole different story! 🐞💻**
+- ⚡ Fun fact ** I'm surprisingly fearless when it comes to real bugs, but when they sneak into my code, it's a whole different story! 🐞💻**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
